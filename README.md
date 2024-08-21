@@ -1,6 +1,9 @@
 me: @bellylopess ★
+
 psychology. 
+
 cursando tec/rob.
+
 aprendendo javascripit!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
